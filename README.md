@@ -1,0 +1,2 @@
+- Hello, my name Sahsa
+- Im making Undertale AU > Scientific of DeTermination Technology(SoDTT/sciencetale)
